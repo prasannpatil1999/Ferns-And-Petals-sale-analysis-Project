@@ -95,4 +95,4 @@ This analysis provides key insights that can help Ferns N Petals optimize its sa
 - Prasannagoud Patil
 
 ### Email
-- Prasannpatil314@gmail.com
+- Prasannpatil31@gmail.com
